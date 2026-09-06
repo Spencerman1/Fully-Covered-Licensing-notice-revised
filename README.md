@@ -1,4 +1,4 @@
-# Fully-Covered-Licensing-revised upload
+# Fully-Covered-Licensing-Notice-revised upload
 
 (⭐ Southern Star Pro. Studios LLC — Intellectual Property Licensing Notice  
 Protected Governed-physics ecosystem  — Not Open Source 
